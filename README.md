@@ -6,4 +6,4 @@ You want to do business with me? If so, only in person.
 
 Mikolaj Roszak™ Przedwiosnie 79/12 73-110 Stargard  ul.echo12@gmail.com
 
-Te. 48 500 487 977 
+Tel. +48 500 487 977 
